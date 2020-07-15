@@ -177,7 +177,7 @@ Also be sure to [join my discord!](https://discord.gg/UQhGKNm)
 **Apa**
 
 *Source Library Co-Author*
-* **Discord:** Apa#4210
+* **Discord:** Scuter#4210
 * **Reddit:** u/Apathetizer
 
 ---
